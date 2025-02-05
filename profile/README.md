@@ -9,7 +9,7 @@ landscape of the national capital for the next five years.
 ## A Crucial Battle for Delhi
 The Delhi election has always been a closely watched political event, with major parties—**Aam Aadmi Party (AAP), Bharatiya Janata Party (BJP),
 and Indian National Congress (INC)**—competing for control of the state. 
-[for more information click here](www.thedailyinsight.blog)
+[for more information click here](https://www.thedailyinsight.blog)
 
 - **AAP**, led by Chief Minister Atishi, is seeking re-election.
 - **BJP** aims to make inroads into the capital after being in opposition for the past decade.
